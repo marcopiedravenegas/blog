@@ -4,8 +4,6 @@ Computer science student at University of Costa Rica.
 
 Interested in computational mathematics.
 
-GitHub: marcopiedravenegas
-
 Email: mpiedrav@proton.me
 
 ## 2024-11-24: Contribution
