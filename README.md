@@ -6,6 +6,31 @@ Interested in computational mathematics.
 
 Email: mpiedrav@proton.me
 
+## 2024-11-26: Worth
+
+Long ago, I realized I'm just absolutely worthless in society. I know well I'm
+a cautionary tale, a counterexample. It's not just about being a misfit, but
+about providing negative value to society just by existing. There are misfits
+whose creativity move society forward. I know well I don't match that
+description.
+
+I understand I'm a burden to everyone. That's one reason why I don't have
+friends. While I have to work together with classmates or coworkers, I try to
+stay away from them as much as possible.
+
+It's deeply concerning that I've spent years in my computer science major, only
+to be absolutely unable to produce meaningful, coherent, sound, cogent,
+valuable contributions to theoretical or applied computing. My professors only
+look at me in scorn and disgust, secretly wishing I never existed.
+
+My very existence brings chaos and unbalance to an otherwise fragile social
+equilibrium. I ought to be dead. I ought to kill myself sometime in the future.
+
+Anyways, suicide is pretty common nowadays. The world is absolute hell and it's
+becoming increasingly worse every day.
+
+My one and only contribution to society will be to commit suicide.
+
 ## 2024-11-24: Contribution
 
 I'm not even sure what my lasting contribution to science and tecnology could
